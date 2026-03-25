@@ -5,4 +5,3 @@ I am a junior majoring in Applied Computing with an emphasis in Software Develop
 ### Connect with me
 **Email:** work.prem.sathisha@gmail.com  
 **LinkedIn:** [linkedin.com/in/premsathisha](https://linkedin.com/in/premsathisha)  
-**Portfolio:** [premsathishaetagi.com](https://premsathishaetagi.com)
